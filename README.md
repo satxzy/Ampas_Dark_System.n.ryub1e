@@ -1,0 +1,1 @@
+# Ampas_Dark_System.n.ryub1e
